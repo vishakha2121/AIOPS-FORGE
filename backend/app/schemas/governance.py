@@ -1,0 +1,1 @@
+Kinnaur, Himachal Pradesh
